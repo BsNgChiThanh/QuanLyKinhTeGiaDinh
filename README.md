@@ -93,6 +93,8 @@ Tùy theo gia đình của bạn có bao nhiêu thành viên mà lập kế ho�
 || Phần tiền này bỏ ống, bất khả xâm phạm, chi cho giáo dục||**Nếu nhiều lập sổ tiết kiệm**
 |**F**|**Tiền thuê nhà**|**1,1 triệu**
 
+**Nếu bạn có nhiều hơn một thành viên, hãy tính tương tự như trên.
+
 ## NGUYÊN TẮC ĐẦU TƯ.
 
 1. Không tập trung toàn bộ tiền cho một việc, vì khi thất bại bạn sẽ trở thành đệ tử Cái Bang, nên chia nhỏ khoản tiền của bạn dành cho công việc này.
