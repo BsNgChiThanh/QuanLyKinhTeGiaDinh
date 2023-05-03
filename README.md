@@ -93,7 +93,7 @@ Tùy theo gia đình của bạn có bao nhiêu thành viên mà lập kế ho�
 || Phần tiền này bỏ ống, bất khả xâm phạm, chi cho giáo dục||**Nếu nhiều lập sổ tiết kiệm**
 |**F**|**Tiền thuê nhà**|**1,1 triệu**
 
-**Nếu bạn có nhiều hơn một thành viên, hãy tính tương tự như trên.
+**Nếu bạn có nhiều hơn một thành viên, hãy tính tương tự như trên.**
 
 ## NGUYÊN TẮC ĐẦU TƯ.
 
